@@ -135,7 +135,7 @@ Der/Die Sprecher/innen für Finanzen des Studierendenrates, der Fachschaften und
 
 (5) Zahlungsaufträge unterliegen der Kollektivzeichnung von mindestens zwei Personen, wobei eine davon der jeweilige Sprecher für Finanzen ist. Ausnahmen können bei den Untergliederungen der Organe sowie in der Verwendung von Handkassen gemacht werden.
 
-(6) Zeichnungsberechtigt für den Studierendenrat sind außer dem/der Sprecher/in für Finanzen des Studierendenrates der/die Sachbearbeiter/in für Finanzen und die weiteren Sprecher/innen.
+(6) Zeichnungsberechtigt für den Studierendenrat sind die Sprecher/innen und mindestens eine weitere Person, die vom Studierendenrat zu bestimmen ist.
 
 (7) Zeichnungsberechtigt für die Fachschaftsräte ist außer dem/der Sprecher/in für Finanzen des Studierendenrates, der/die Sprecher/in für Finanzen des jeweiligen Fachschaftsrats und mindestens eine weitere Person, die vom jeweiligen Fachschaftsrat zu bestimmen ist.
 
